@@ -48,8 +48,8 @@ Sou um entusiasta de tecnologia que gosta de transformar problemas em soluções
 
 ## 🌐 Contato
 - 📧 **Email:** ticodecoisas@gmail.com
-- 📱 **WhatsApp:** [Contato Rápido](https://wa.me/SEUNUMERO)
-- 🔗 **LinkedIn:** [Seu LinkedIn](https://www.linkedin.com/in/seuperfil/)
+- 📱 **WhatsApp:** [Contato Rápido](https://wa.me/5511989281468)
+- 🔗 **LinkedIn:** [Seu LinkedIn](https://www.linkedin.com/in/silmartolottoa227716)
 
 ---
 <p align="center">🚀 Vamos juntos codar soluções práticas! 🚀</p>
